@@ -1,4 +1,5 @@
-Soy Brisa Soy Ramiro. 
+
+Soy Ramiro. 
 
 Nací en el DF
 Soy Asesor en el Instituto Nacional Electoral
